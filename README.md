@@ -1,1 +1,1 @@
-Skills polishing.
+I was having a blast.
